@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tanreallytan
+- 👀 I’m interested in intros
+- 🌱 I’m currently learning After Effects.
+- 📫 How to reach me mail: tanreallybusiness@gmail.com
